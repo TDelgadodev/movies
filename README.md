@@ -5,4 +5,4 @@
 - Victoria Hofstetter
 - Gabriel Nicolas Lanzillotti
 - Emir Tonn
-- Thiago Delgado 
+- Thiago Delgado, 18, Avellaneda 
