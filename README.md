@@ -3,6 +3,6 @@
 # Integrantes:
 
 - Victoria Hofstetter
-- Gabriel Nicolas Lanzillotti - 27 - Buenos Aires
+- Gabriel Nicolas Lanzillotti
 - Emir Tonn
-- Thiago Delgado 
+- Thiago Delgado, 18, Avellaneda 
