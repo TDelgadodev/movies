@@ -5,4 +5,4 @@
 - Victoria Hofstetter, 27, Ingeniero Maschwitz
 - Gabriel Nicolas Lanzillotti
 - Emir Tonn
-- Thiago Delgado 
+- Thiago Delgado, 18, Avellaneda 
